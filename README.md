@@ -3,7 +3,7 @@
 
   <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=lonely-lovee&label=lovelies&base=2489&style=flat-square&color=ff57b6)
+  ![](https://komarev.com/ghpvc/?username=lonely-lovee&label=lovelies&base=2803style=flat-square&color=ff57b6)
 
   <div align="center">
 ˚ʚ ᴄᴀʟʟ ᴍᴇ ᴀɴɴɪᴇ ᴏʀ ʙᴜʙᴜ ɞ˚

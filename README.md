@@ -18,7 +18,7 @@
 <div align="center">
 <img width="650" height="850" alt="image" src="https://github.com/user-attachments/assets/bbcfabe5-c8ba-4feb-8db7-cf9ef321e7ab" />
 </div>
-♡⸝⸝  ɪ ʟᴏᴠᴇ ᴘʀɪɴᴄᴇꜱꜱ ꜰʀᴏᴍ ʀᴇᴄᴋʟᴇꜱꜱ.
+♡⸝⸝  ᴏʙꜱᴇꜱꜱᴇᴅ ᴡɪᴛʜ ᴘʀɪɴᴄᴇꜱꜱ ꜰʀᴏᴍ ʀᴇᴄᴋʟᴇꜱꜱ.
 
 
 <div align="center">

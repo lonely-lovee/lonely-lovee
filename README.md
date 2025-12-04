@@ -5,6 +5,7 @@
   
   ![](https://komarev.com/ghpvc/?username=lonely-lovee&label=lovelies&base=28034&style=flat-square&color=ff57b6)
 
+︶⊹︶︶୨୧︶︶⊹︶
   <div align="center">
 ˚ʚ ᴄᴀʟʟ ᴍᴇ ᴀɴɴɪᴇ ᴏʀ ʙᴜʙᴜ ɞ˚
 </div>
@@ -18,11 +19,13 @@
 <div align="center">
 <img width="650" height="850" alt="image" src="https://github.com/user-attachments/assets/bbcfabe5-c8ba-4feb-8db7-cf9ef321e7ab" />
 </div>
+
 ♡⸝⸝  ᴏʙꜱᴇꜱꜱᴇᴅ ᴡɪᴛʜ ᴘʀɪɴᴄᴇꜱꜱ ꜰʀᴏᴍ ʀᴇᴄᴋʟᴇꜱꜱ.
 
+︶⊹︶︶୨୧︶︶⊹︶
 
 <div align="center">
-✩ ꜰᴏʟʟᴏᴡ ᴍᴇ ᴏɴ ꜰᴀᴄᴇʙᴏᴏᴋ, ʀᴇᴀᴄʜɪɴɢ 10ᴋ ꜰᴏʟʟᴏᴡᴇʀꜱ.
+✩ ꜰᴏʟʟᴏᴡ ᴍᴇ ᴏɴ ꜰᴀᴄᴇʙᴏᴏᴋ.
 
    [facebook](https://www.facebook.com/profile.php?id=61583743178723)
   [ata](https://lonely-love.atabook.org/) 

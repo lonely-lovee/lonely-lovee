@@ -22,7 +22,9 @@
 
 
 <div align="center">
+✩ ꜰᴏʟʟᴏᴡ ᴍᴇ ᴏɴ ꜰᴀᴄᴇʙᴏᴏᴋ, ʀᴇᴀᴄʜɪɴɢ 10ᴋ ꜰᴏʟʟᴏᴡᴇʀꜱ.
 
+   [facebook](https://www.facebook.com/profile.php?id=61583743178723)
   [ata](https://lonely-love.atabook.org/) 
 [straw](https://bloxxing-my-opps.straw.page)
 [‪‪‪♡](https://github.com/POST4L-DUDE)

@@ -11,7 +11,7 @@
 </div>
 
 <div align="center">
-!⠀20 ,⠀ꜱʜᴇ/ʜᴇʀ ★ ⠀. ᴜɴᴅᴇʀ 13 ᴅɴɪ . ᴛᴀᴋᴇɴ 
+!⠀20 ,⠀ꜱʜᴇ/ʜᴇʀ ★ ⠀. ᴜɴᴅᴇʀ 13 ᴅɴɪ .
 
  
 </div>
@@ -30,7 +30,6 @@
    [facebook](https://www.facebook.com/profile.php?id=61583743178723)
   [ata](https://lonely-love.atabook.org/) 
 [straw](https://lonely-lovings.straw.page)
-[‪‪‪♡](https://github.com/POST4L-DUDE)
 </div>
 
 ⋆｡°✩

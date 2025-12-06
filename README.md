@@ -29,7 +29,7 @@
 
    [facebook](https://www.facebook.com/profile.php?id=61583743178723)
   [ata](https://lonely-love.atabook.org/) 
-[straw](https://bloxxing-my-opps.straw.page)
+[straw](https://lonely-lovings.straw.page)
 [‪‪‪♡](https://github.com/POST4L-DUDE)
 </div>
 

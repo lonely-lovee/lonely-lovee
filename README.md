@@ -25,9 +25,7 @@
 ︶⊹︶︶୨୧︶︶⊹︶
 
 <div align="center">
-✩ ꜰᴏʟʟᴏᴡ ᴍᴇ ᴏɴ ꜰᴀᴄᴇʙᴏᴏᴋ.
-
-   [facebook](https://www.facebook.com/profile.php?id=61583743178723)
+  
   [ata](https://lonely-love.atabook.org/) 
 [straw](https://lonely-lovings.straw.page)
 </div>

@@ -10,8 +10,8 @@
 <div align="center">
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/605b96cf-88ac-428f-8396-7e0d43c2724c" /> 
   
-[ata](https://lonely-lovings.straw.page/) 
-[straw](https://lonely-love.atabook.org/)
+[straw](https://lonely-lovings.straw.page/) 
+[ata](https://lonely-love.atabook.org/)
 
 
 

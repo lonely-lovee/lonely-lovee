@@ -1,44 +1,18 @@
 <div align="center">
-  ⋆｡°✩
-
-  <div align="center">
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/605b96cf-88ac-428f-8396-7e0d43c2724c" /> 
   
-  ![](https://komarev.com/ghpvc/?username=lonely-lovee&label=lovelies&base=28034&style=flat-square&color=ff57b6)
-
-︶⊹︶︶୨୧︶︶⊹︶
-  <div align="center">
-˚ʚ ᴄᴀʟʟ ᴍᴇ ᴀɴɴɪᴇ ᴏʀ ʙᴜʙᴜ ɞ˚
-</div>
+  ![](https://komarev.com/ghpvc/?username=lonely-lovee&label=partygoers&base=28034&style=flat-square&color=fe9326)
 
 <div align="center">
-!⠀20 ,⠀ꜱʜᴇ/ʜᴇʀ ★ ⠀. ᴜɴᴅᴇʀ 13 ᴅɴɪ .
+<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/a6c87328-3fc0-4f38-8885-4c897ec9706e" />
 
- 
-</div>
 
 <div align="center">
-<img width="650" height="850" alt="image" src="https://github.com/user-attachments/assets/bbcfabe5-c8ba-4feb-8db7-cf9ef321e7ab" />
-</div>
-
-♡⸝⸝  ᴏʙꜱᴇꜱꜱᴇᴅ ᴡɪᴛʜ ᴘʀɪɴᴄᴇꜱꜱ ꜰʀᴏᴍ ʀᴇᴄᴋʟᴇꜱꜱ.
-
-︶⊹︶︶୨୧︶︶⊹︶
-
-<div align="center">
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/605b96cf-88ac-428f-8396-7e0d43c2724c" /> 
   
-  [ata](https://lonely-love.atabook.org/) 
-[straw](https://lonely-lovings.straw.page)
-</div>
+[ata](https://lonely-lovings.straw.page/) 
+[straw](https://lonely-love.atabook.org/)
 
-⋆｡°✩
-
-<img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/ce6d9b97-e3bd-4d05-9da9-7424b9decfaa" /> <img width="103" height="58" alt="image" src="https://github.com/user-attachments/assets/5f3233f6-0e9d-4167-9e52-15bba98927af" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9ef860a8-4740-495c-b331-2e7ee7dd47f4" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3d88eed4-a484-4bdb-9da6-748fcd296f5d" /> <img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/d0924f60-256a-4e8b-863f-73c127b32e73" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c8e1566d-da55-4af3-9842-6cf3e670d025" />
-
-︶⊹︶︶୨୧︶︶⊹︶
-
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/1d8c9057-d791-415c-bd18-6f41c9bac678" />
-
-chernobyle foxy
 
 
 
